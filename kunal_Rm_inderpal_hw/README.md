@@ -1,7 +1,7 @@
 # kunal_Rm_inderpal_hw
 Me and kunal is working on homework#1 - we both are international students from india.
 
-I am bascically from Bathinda, Punjab.
+I am basically from Bathinda, Punjab.
 My hobbies are singing and writing. 
 I started writing from grade 5.
 
