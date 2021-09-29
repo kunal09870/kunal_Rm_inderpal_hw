@@ -8,6 +8,7 @@ I started writing from grade 5.
 I would like to type about a topic - 
 
 CLOTHING
+
 People care much about clothing, as it is important also. It is the thing in which not everyone but many of us are interested.
 The trend of clothing going in fall 2021:
 The revival of 90's clothes,
